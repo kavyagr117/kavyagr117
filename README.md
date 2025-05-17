@@ -2,7 +2,7 @@
 
 
 Full Stack Developer | QA Tester | Cybersecurity Enthusiast
-📍 Bangalore, Karnataka | 🌐 GitHub | LinkedIn
+📍 Bangalore, Karnataka 
 
 📖 About Me 
 
